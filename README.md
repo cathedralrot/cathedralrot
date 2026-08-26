@@ -15,7 +15,7 @@ $\color{#8A7045}{\Large{\textsf{୨୧ links ୨୧}}}$
 
 <br><br><br>
 
-<a href="https://theaclzpe.straw.page">
+<a href="https://theaclizpe.straw.page/">
 strawpage
 </a>
 
