@@ -42,7 +42,7 @@ $\color{#AAA58D}{\tiny{\textsf{I won't chase people. if you want to talk or sit,
 
 <br>
 
-$\color{#AAA58D}{\tiny{\textsf{Dazai Fictionkin. Please DNI if you dislike Dazai Osamu, (or at least don't mention it around me.)}}}$
+$\color{#AAA58D}{\tiny{\textsf{Please DNI if you dislike Dazai Osamu, (or at least don't mention it around me. He is a huge comfort of mine and I deeply see myself in him.)}}}$
 
 <br>
 
