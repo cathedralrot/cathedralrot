@@ -16,7 +16,7 @@ $\color{#9A9278}{\small{\textsf{୨୧ links ୨୧}}}$
 
 <br>
 
-<a href="https://theaclzpe.straw.page">strawpage</a>
+<a href="https://theaclizpe.straw.page/">strawpage</a>
 $\color{#777D68}{\textsf{　·　}}$ <a href="https://en.pronouns.page/@cathedralrot">pronouns</a>
 $\color{#777D68}{\textsf{　·　}}$ <a href="https://cathedralrot.atabook.org/">atabook</a>
 
