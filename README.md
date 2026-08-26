@@ -4,7 +4,7 @@
 
 <!-- MAIN IMAGE -->
 
-<img src="YOUR IMAGE HERE" width="700">
+<img src="4b1f316d41b9c1ab2a95eba6e159505c.gif" width="700">
 
 <br>
 
